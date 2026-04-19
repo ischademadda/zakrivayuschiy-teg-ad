@@ -1,1 +1,1 @@
-https://github.com/kal9mov/zakrivayuschiy-teg-ad
+https://github.com/ischademadda/zakrivayuschiy-teg-ad
